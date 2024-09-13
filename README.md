@@ -1,3 +1,7 @@
 # hello-world
-This repository is for practicing the GitHub
-Hi, I am Gouravjeet Singh. I  came to Canada last year as an international student and I have completed my diploma in electronics and communications back in India and currently I am pursuing  diploma in electronics engineering technician. I am a dynamic person with practical approach. I have just turned 22, but I believe that I am mature enough to make my livelihood myself and support my family, that is why I have come to Canada to broaden up my horizons. If I talk about my strength, I am an open-minded person and I am always curious to learn something new and creative. On the other hand, I get overwhelmed sometimes. 
+This repository is for practicing the GitHub My name is Gouravjeet Singh I am persuing my diploma in Durham College
+
+ 
+
+
+
